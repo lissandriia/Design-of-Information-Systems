@@ -1,2 +1,2 @@
 # Design-of-Information-Systems
-Elizaveta U.
+Elizaveta Ustiantceva
